@@ -1,4 +1,4 @@
-<h1 align="center">ID</h1>
+<h1 align="center">id</h1>
 
 - 美区ID（有小火箭）
 
