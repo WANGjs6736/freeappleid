@@ -1,6 +1,6 @@
 <h1 align="center">id</h1>
 
-- 美区ID（有小火箭）
+- 美区ID
 
 - 账号： xitz3492470@163.com
   
