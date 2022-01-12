@@ -14,7 +14,7 @@
 
 - 密码：Qi1122113
 
-## *[购买独享号](https://appsir.shop)
+## [点击购买独享号](https://appsir.shop)
 
 ### 查看更多请移步
 
