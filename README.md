@@ -14,6 +14,18 @@
 
 - 密码：Qi1122113
 
+- 已购小火箭账号ID
+- 账号: lj91711739@163.com
+- 密码: Coolplayid66
+ 
+ 
+- 账号: w1ahknrx007aeeknru@163.com
+- 密码: Dd667788
+
+ 
+- 账号: huaizhilu83@163.com
+- 密码: Sx112211
+
 ## [点击购买独享号](https://appsir.shop)
 
 ### 查看更多请移步
