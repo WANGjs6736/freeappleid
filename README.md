@@ -1,36 +1,11 @@
-<h1 align="center">分享id</h1>
+<h1 align="center">分享的id</h1>
 
-
-- 美区ID
-
-- 账号： xitz3492470@163.com
-  
-- 密码： Am112211
-
-
-- 台湾ID
-
-- 账号：ctikklxjr@hotmail.com
-
-- 密码：Qi1122113
 
 - 已购小火箭账号ID
-
-- 账号: lj91711739@163.com
-
-- 密码: Coolplayid66
  
- 
- 
-- 账号: w1ahknrx007aeeknru@163.com
+- 账号: fuomkm@hotmail.com
 
-- 密码: Dd667788
-
-
- 
-- 账号: huaizhilu83@163.com
-
-- 密码: Sx112211
+- 密码: Aa112211
 
 ## [点击购买独享号](https://appsir.shop)
 
