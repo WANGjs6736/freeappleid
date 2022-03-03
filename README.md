@@ -1,4 +1,4 @@
-<h1 align="center">分享的id</h1>
+<h1 align="center">免费分享的id</h1>
 
 
 - 已购小火箭账号ID
