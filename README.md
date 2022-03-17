@@ -1,21 +1,10 @@
 <h1 align="center">免费分享的id</h1>
 
 
-- 已购小火箭账号ID
- 
-- 账号: fuomkm@hotmail.com
+- 美区ID（无付费APP）
+- 账号: china.zj.qz.yh2@163.com
+- 密码: Zu112211
 
-- 密码: Aa112211
-
- =======================
-- 美区ID
-- 账号: wzxffzj@126.com
-- 密码: Hb112211
- 
- =======================
-- 美区ID
-- 账号: x62bxum4@163.com
-- 密码: Hb112211
 
 ## [点击购买独享号](https://appsir.shop)
 
