@@ -1,12 +1,8 @@
 <h1 align="center">免费分享的id</h1>
 
+美区，韩区，台湾，等各种付费app 下面网站获取
 
-- 美区ID（无付费APP）
-- 账号: china.zj.qz.yh2@163.com
-- 密码: Zu11221fsa1
-- 更新时间：2022-06-02
-
-## 更多账号请前往网站获取：[https://ioss.ml/share/fx](https://ioss.ml/share/fx)
+## 共享ID网站获取：[https://ioss.ml/share/fx](https://ioss.ml/share/fx)
 
 ## [点击购买独享号](https://appsir.shop)
 
