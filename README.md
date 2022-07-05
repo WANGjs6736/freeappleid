@@ -1,6 +1,6 @@
 <h1 align="center">免费分享的id</h1>
 
-美区，韩区，台湾，等各种付费app 下面网站获取
+美区，韩区，台湾，等各种付费app 下面网站获取 
 
 ## 共享ID网站获取：[https://ioss.ml/share/fx](https://ioss.ml/share/fx)
 
